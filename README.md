@@ -14,6 +14,9 @@
 
 - ⚡ Fun fact **i like playing games and watching anime.**
 
+<br/>
+<br/>
+
 ## 🚀 Languages and Tools:
 
 <p align="left"> 
