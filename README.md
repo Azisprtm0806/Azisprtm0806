@@ -10,6 +10,6 @@
 ### Connect with me:
 
 - Instagram @azisprtm_ or copy the link www.instagram.com/azisprtm_
--Facebook Azis or copy the link www.facebook.com/muhamadazis.pratama.9
+- Facebook Azis or copy the link www.facebook.com/muhamadazis.pratama.9
 
 ---
