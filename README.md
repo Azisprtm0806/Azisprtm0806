@@ -39,7 +39,7 @@
 ## Connect with me:
 <p align="left">
 
-<a href = "https://www.facebook.com/in/muhamadazis.pratama.9/"><img src="https://img.icons8.com/fluent/48/000000/facebook.png"/></a>
+<a href = "https://www.facebook.com/muhamadazis.pratama.9/"><img src="https://img.icons8.com/fluent/48/000000/facebook.png"/></a>
 <a href = "https://www.instagram.com/azisprtm_/"><img src="https://img.icons8.com/fluent/48/000000/instagram-new.png"/></a>
 
 </p>
