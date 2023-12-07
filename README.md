@@ -10,9 +10,9 @@
 
 - 🌱 I’m currently learning **Everything** 🤣
 
-- 📫 How to reach me **azisprtm08@gmail.com**
+- 📫 How to reach me **azisprtm2@gmail.com**
 
-- ⚡ Fun fact **i like playing games and watching anime.**
+- ⚡ Fun fact **i like playing games, listening to music, and sometimes watching anime.**
 
 <br/>
 <br/>
